@@ -1,1 +1,1 @@
-# Entrenamiento-Geek
+Aquí están subidas todas las actividades.
